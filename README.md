@@ -6,7 +6,6 @@ I like games, linux, systems, networking and everything related to tech.
 💥💯
 ## Socials. 💭
 - [Discord](https://discord.gg/9yewYDWeDE)
-- [Instagram](https://www.instagram.com/cloudyy.io/)
 - [Tiktok](https://www.tiktok.com/@tobenzi)
 
 ### If you want to learn more about me, here is my website: [Click here.](https://tobosk.github.io/home/)
